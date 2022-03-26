@@ -1,0 +1,5 @@
+- Hi, @abilyd here :)
+- I’m interested in coding, hiking, anime, and becoming a better person.
+- I’m currently learning about computer science and religion.
+- I’m open to collaborating on games!
+- How to reach me: ald#5459 on Discord.
